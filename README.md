@@ -1,7 +1,7 @@
 <img width="874" height="1240" alt="10517" src="https://github.com/user-attachments/assets/43a51bce-2726-47bc-aa6d-8457c8e7b458" />
 
 
-main - [https://github.com/sagemomoii] (@sagemomoii)
+main - [https://github.com/sagemomoii] (sagemomoii)
 
 ^^^ sign ata on there if u love so2. tch.
 
